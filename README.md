@@ -2,4 +2,3 @@
 - 👀 I’m interested in Graphic Design
 - 🌱 I’m currently learning UI and Product Design
 - 💞️ I’m looking to collaborate on any design related projects
-- 📫 How to reach me? send an email to raihan.rasyid@gmail.com
